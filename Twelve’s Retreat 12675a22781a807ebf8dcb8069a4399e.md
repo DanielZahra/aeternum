@@ -1,0 +1,3 @@
+# Twelve’s Retreat
+
+A place of worship within [Mz’Lupakku](Mz%E2%80%99Lupakku%2012575a22781a8030a6b3ef34e94fc9b3.md). This Chapel is dedicated to [Ravana (Goddess of War)](Ravana%20(Goddess%20of%20War)%20ef885dcf2dac40bd934703daa3d8b6aa.md) and [Foristra (Goddess of Nature)](Foristra%20(Goddess%20of%20Nature)%20228c4ae2b832446cbf62058bf1fbcb16.md). It is built within the trunk of one the large trees and the interior is decorated with animal furs, bones and trophies that were acquired by the people of [Mz’Lupakku](Mz%E2%80%99Lupakku%2012575a22781a8030a6b3ef34e94fc9b3.md). Most of the people from the [Covenant of the Wolf](Covenant%20of%20the%20Wolf%2012575a22781a80d99e01f30949cd5c3f.md) will spend some hours here once a week to revere the gods and relax their minds.

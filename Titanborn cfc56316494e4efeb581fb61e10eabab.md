@@ -1,0 +1,15 @@
+# Titanborn
+
+The giant  peoples of the lands believe that they carry the essence of the titans within them. The different cultures and body types and usually live in different conditions just like the rest of the people.
+
+While not as skilled with magic as some of the other races, the giants make up for it with sheer size and strength. They know how to wield their own magic with runes and shamanism. They also know how use their voices and shout to mould runic language to create forceful magical effects. The more skilled giants with runic shouts have been known to rival some of the greatest mages in the world. As with the common people, not all giants learn how to wield magic runes, runic shouts of shamanism. Some of them focus on labor or learning a craft to help their tribes.
+
+As a society the Titanborn, tend to keep to their own as their homes are not usually welcoming to those of smaller size. This of course goes both ways, their massive size makes it very  difficult for them to ‘function’ well in the cities of most people. From known recorded history, the Titanborn were never interested in expanding their tribes and forming kingdoms, they seem to be mostly humble in nature and are happily living in peace, of course they are more than willing to defend that peace and this doesn't exclude that sometimes giants exile themselves and turn to the evil ways of the rest of society.
+
+### Rune Powers and Death
+
+As a part of their society, on death, giants can pass on their powers to the next of kin. These power are often the Titanborn runes and other magical rune smithing powers. These are valued and as much as possible attempted to be kept in the families for as long as possible. When 2 Titanborn families unite, their powers are often mixed and increased through inheritance. Not all giants inherit their power and they're passed on from one individual to the other.
+
+### Ancestry
+
+Being direct descendants of the Aezatans, the titanborn have managed to stay away from Faith in the Twelve and still revere the Titans as their 'deities'. Only the most knowledgeable of historians can trace and connect the history where the Titanborn were part of the [Aezatan](Aezatan%203da707b77610408784cd1bdfc44fe23f.md)s people thatbetrayed their owned and used the might of the twelve to wage war on their own people, defending the titans and abandoning their Aezatan traditions. As time passed their physical and mental capabilities developed in a completely different directions and are now the modern [Titanborn](Titanborn%20cfc56316494e4efeb581fb61e10eabab.md). During [The Titan War](The%20Titan%20War%204b93790f498a457a9172f0b2adb5afc6.md), the Titanborn ancestores gave away their breadable souls to the twelve in exchange for survival, while their bretheren decided to oppose the twelve and keep their longgevity, which lead to their quasi-extincition.
