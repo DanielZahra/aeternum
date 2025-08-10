@@ -1,0 +1,3 @@
+# Goblin
+
+Like the other Gnomes Goblins find their original homes in Fellintra. The largest Goblin population is found in the southern hemispehre of [Fellintra](Fellintra%208a284461caa445f9a1c30e2b1477f45e.md). The Goblins are the smallest (around 1 meter in height) of the Gnomes and often have greenish to grey skin. Due to their diminutive nature and apperance, they have often seen discrimination against their ilk and while you will find Goblins everywhere, they usually stick to their own people.

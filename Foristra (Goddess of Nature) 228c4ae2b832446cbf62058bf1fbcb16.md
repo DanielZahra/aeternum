@@ -1,0 +1,1 @@
+# Of course, when natural things and unnatural things are involved, the lines and often..blurry and overzealous follows have often sparked conflicts. Transformation, healing and revival magic are often seen as unnatural and they defy the natural course of life. It’s a common debate within the clergy and those who study the arcane and divine matters.

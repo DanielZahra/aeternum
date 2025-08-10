@@ -1,0 +1,1 @@
+# Leave it to a lord or king to make sure they also tax the dead.

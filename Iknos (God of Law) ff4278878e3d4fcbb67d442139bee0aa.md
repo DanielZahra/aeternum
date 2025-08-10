@@ -1,0 +1,1 @@
+# Iknos governs over the planes of law. Law and Order in their nature are neutral so the planes of law cover both light and dark (good and evil).
