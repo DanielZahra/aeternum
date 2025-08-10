@@ -1,0 +1,1 @@
+# Most commonly people refer to monsters over animals, this usually means a creature that is not a person who has the ability to control mana.
