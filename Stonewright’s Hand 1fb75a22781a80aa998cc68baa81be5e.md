@@ -1,0 +1,1 @@
+# The @Stonewright’s Hand is a relic designed after @Saint Thaldar Stonewright, one of the founding fathers of @Emberdeep. The @Church of the Twelve commissioned this piece shortly after Thaldar’s passing but the hammer never saw the day of light until it was recovered by @Caeldin Ironfaith in the Diamon Forge under the @Uralgatoa’s Dunes.

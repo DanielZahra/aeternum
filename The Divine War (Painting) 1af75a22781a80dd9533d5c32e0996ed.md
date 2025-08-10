@@ -1,0 +1,1 @@
+# This picture by @Gamagee Inknails, pictures the @First Planar Divine War from the imagination of a Dwarf from @Cerulia. One can see the slaughter between the Celestials and Fiends but painted in a beautiful pictures that almost resembles a dance.

@@ -1,0 +1,1 @@
+# On occasions, rulers of any kind meet and unfortunate end. If by a miracle their bodies are recovered and brought back from the dead and a successor has already taken their place. 'The Second Seat' Custom Law that both rulers rule at the same time with the revived ruler acting as a secondary and an assistant to the new ruler.
