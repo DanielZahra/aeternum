@@ -1,0 +1,1 @@
+# The Far Planes are, in reality within the Astral Plane. However they are so far away that the people of Aeternum treat them differently, as such they have their own name.
