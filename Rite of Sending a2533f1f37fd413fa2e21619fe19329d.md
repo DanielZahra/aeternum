@@ -1,0 +1,1 @@
+# These Rites are often done by priests or clerics through prayer. However in their absence anyone can focus on the energies of the planes and wish for this. The gods are always listening.

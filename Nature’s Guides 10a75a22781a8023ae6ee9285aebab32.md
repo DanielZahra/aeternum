@@ -1,0 +1,1 @@
+# However, those don’t aren’t true followers or knowledgable about @Foristra (Goddess of Nature) might find their way blocked or harder to navigate.

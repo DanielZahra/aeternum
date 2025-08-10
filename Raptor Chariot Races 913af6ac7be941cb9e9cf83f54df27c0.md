@@ -1,0 +1,1 @@
+# In the capital of the Palatine Empire lies a large oval arena. Weekly events are held where Raptors are used to pull chariots in a deadly race, where fighting, racing, and making it to the end are all valuable tactics.

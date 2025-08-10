@@ -1,0 +1,1 @@
+# Many of those who have experienced a revival through this magic have mentioned that that they can feel other people’s presence within them, this has been attributed to how the soulstone is made and used.
