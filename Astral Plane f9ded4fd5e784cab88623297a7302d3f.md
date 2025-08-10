@@ -1,0 +1,1 @@
+# On the western side of the Planar Map, lies the Plane of Law. While not as big as the Planes of Light and Darkness, the Plane of Law is the home of the Arbiters. It shares both a part of the plane of light and darkness.

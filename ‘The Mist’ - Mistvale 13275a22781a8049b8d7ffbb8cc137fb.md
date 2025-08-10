@@ -1,0 +1,1 @@
+# Luckily, the @Spirit Guardians, live by consuming mists and the Groves at the top of the mesas thrive because of this. As long the each village has an active spirit guardian, the thick and dangerous mists don’t swell at the top of the mesas. This is also the other reasons why the Guardians are treated with such importance, and respect and are protected at all costs.

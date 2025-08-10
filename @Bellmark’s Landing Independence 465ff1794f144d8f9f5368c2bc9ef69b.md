@@ -1,0 +1,9 @@
+# @Bellmark’s Landing Independence
+
+The people of [Bellmark’s Landing](Bellmark%E2%80%99s%20Landing%2054c76e237a3b470da0856b090bec2ee2.md) had been at the center of the confilict for as long as anyone alive could remember. In the year 3213, another Valkorian War seemed to be brewing and the people could not have it. They barely had enough money to put bread on the table and they knew that with a war the [Palantine Empire](Palantine%20Empire%20b5f0a5e7621b4b02862738a0582cfccd.md) would bleed them dry of any money they had, so they could fund the military.
+
+The [Copper Rats](Copper%20Rats%2080dc3a7e773e4b7f97ceadc9f93ace8c.md) led by [Jack Campanella ](Jack%20Campanella%20cb2ff22b34c3431e9976d73fe2776732.md) started a revolt during the Execution of [Cameron Mavis](Cameron%20Mavis%205658a635029e430cb235619939f851eb.md). This led the Empire to respond in kind. Both sides of the conflict involved a lot of people and fighting. The Empire tried to use force to subdue the Rats, but this only fanned the revolution fires.
+
+The [Ebon Syndicate](Ebon%20Syndicate%200374ad3a87cf4255bcfbadb2c0df9b5f.md) helped the Empire but it is said that the [Midnight Note](Midnight%20Note%20aabd4488c4ea43c393d10542ec8af339.md), played an important but undocumented role in this revolution. The event climaxed when the City Guard refused to keep hurting their own citizens and they allowed the revolutionaries to invade the palazzo verde, the at the time Praetor [Florina De Fonseca](Florina%20De%20Fonseca%20857fc3a6d5fa45e6ad0b12519d0264b1.md)’s home. 
+
+In a turn of events, the rats spared [Florina De Fonseca](Florina%20De%20Fonseca%20857fc3a6d5fa45e6ad0b12519d0264b1.md) and they declared [Bellmark’s Landing](Bellmark%E2%80%99s%20Landing%2054c76e237a3b470da0856b090bec2ee2.md) and independent state.

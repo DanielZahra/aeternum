@@ -1,0 +1,1 @@
+# The following sections encapsulate legendary items, legends and relics of Aetenrum.

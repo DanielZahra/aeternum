@@ -1,0 +1,1 @@
+# Knowledge books allow a PC to add a +1 to a Knowledge skill check about a particular topic. These bonuses don’t stack.
