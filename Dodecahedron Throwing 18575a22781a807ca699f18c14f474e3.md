@@ -1,0 +1,1 @@
+# The sport is usually played in a sandpit but fans of the sport can really play anywhere they want.

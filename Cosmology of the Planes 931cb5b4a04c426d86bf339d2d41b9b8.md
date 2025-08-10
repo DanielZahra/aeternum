@@ -1,0 +1,2 @@
+# Along the rotations of the prime, the elemental belt is also orbiting at almost the same 'speed' of the prime but slightly slower. Every year '336' days the  planets of the time rotate a quarter cycle quicker through the Elemental Belt. 
+Each ‘Season or quarter cycle’ lasts around 336 days where the early and last days usher in the new season. The people of Aeternum have adjusted to be ready

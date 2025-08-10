@@ -1,0 +1,5 @@
+# Celestial Aureole aka The Sun
+
+[Lumerium (Plane of Light)](Lumerium%20(Plane%20of%20Light)%207f2da552496c45d5b544d82df911103f.md) is surrounded by what is known as the **Celestial Aureole.** Floating within the [Astral Plane](Astral%20Plane%20f9ded4fd5e784cab88623297a7302d3f.md)’s space surrounding [Lumerium (Plane of Light)](Lumerium%20(Plane%20of%20Light)%207f2da552496c45d5b544d82df911103f.md), are millions of small crystals of light which form a massive infinity sign (∞) surrounding the 2 realms within [Lumerium (Plane of Light)](Lumerium%20(Plane%20of%20Light)%207f2da552496c45d5b544d82df911103f.md), Elysium and Nirvana. **Celestial Aureole,** single-handedly provides light and thus solar energy to both [Lumerium (Plane of Light)](Lumerium%20(Plane%20of%20Light)%207f2da552496c45d5b544d82df911103f.md) and the [Prime Material Planes](Prime%20Material%20Planes%2020a880ed277044b892497e01fd27933b.md).
+
+the Celestial Aureole is sometimes often referred as the Sun as a whole light.

@@ -1,0 +1,1 @@
+# There are some strict rules and magic involved when starting a Gauntlet of the Crown.
