@@ -1,0 +1,1 @@
+# What is also known is that while wearing the crown, the wearer can read the mind of those in the range of 30 meters. This means those not loyal or bad intentions do not last long in the presence of the crown’s wearer.
